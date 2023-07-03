@@ -1,0 +1,1 @@
+# resimde-i-tirme
